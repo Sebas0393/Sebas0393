@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sebas0393
+- 👀 I’m interested in programming and lear by myself.
+- 🌱 I’m currently learning programming and development software.
+- 💞️ I’m looking to collaborate on any software project
+- 📫 How to reach me: juseosba03@gmail.com - 3118292243..
